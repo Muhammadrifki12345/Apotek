@@ -1,1 +1,1 @@
- bayhaqi mana mabarnya
+Apotek
