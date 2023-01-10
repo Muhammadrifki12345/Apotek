@@ -1,0 +1,1 @@
+ bayhaqi mana mabarnya
